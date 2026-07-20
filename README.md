@@ -1,5 +1,5 @@
 # stuff...
-
+-# big thanks to the fella on strawp who told me how to do ts
 Hallo there!! you may have found this by clicking on my git on pony town heh...
 
 statuses!!
