@@ -15,4 +15,4 @@ uhhh what do i put here
 
 Oh yea
 
-scavs.straw.page
+if you wanna interac but you are in a problematic fandom but you are NOT, still interact. otherwise please dont. etc; tcoaal forsaken changed(game)
