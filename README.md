@@ -16,3 +16,4 @@ uhhh what do i put here
 Oh yea
 
 if you wanna interac but you are in a problematic fandom but you are NOT, still interact. otherwise please dont. etc; tcoaal forsaken changed(game)
+just bc i didnt include a fandom here does not mean it applies
