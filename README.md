@@ -7,6 +7,8 @@ whenever i have simply dniuf or dni in my name, you can actually interact with m
 
 any other dni's should be respected pleas..
 
+# IF IM SITTING IN YOUR PLACE OR BOTHERING YOU PLEASE WHISP ME NO MATTER MY DNI!
+
 friendly!! i dont bite please interact with me!! if you see me with my skin scavvo, you can trade with me if it says so in my name !!
 
 friend me on disc to talk..bbuhhjubuh )bio)
