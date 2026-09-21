@@ -5,7 +5,7 @@ Hallo there!! you may have found this by clicking on my git on pony town heh...
 statuses!!
 whenever i have simply dniuf or dni in my name, you can actually interact with me... i only put these because i may feel uncomfortable in a place i like!! i dont bite please sit here... idc what fandom.. idk how freakin old u are jus sit w me...oka? oka
 at school= at my home pony town is open and i cant actually see cus yes im atschool and im running pone on my puter but always feel free to cuddle me when i have at school in name
-current status: 'exoworo, c+h check git!!' c+h freely
+current status: 'exoworo, c+h check git!!' c+h freely, im not gonna reply to whisps or if ya talkin to me unless ur a close friend of mine
 any other dni's should be respected pleas..
 
 # IF IM SITTING IN YOUR PLACE OR BOTHERING YOU PLEASE WHISP ME NO MATTER MY DNI!
