@@ -4,7 +4,7 @@ Hallo there!! you may have found this by clicking on my git on pony town heh...
 
 statuses!!
 whenever i have simply dniuf or dni in my name, you can actually interact with me... i only put these because i may feel uncomfortable in a place i like!! i dont bite please sit here... idc what fandom.. idk how freakin old u are jus sit w me...oka? oka?
- so uh at school= at my home pony town is open and i cant actually seeim currently at school and i cant see what you r doing. im at school and im on pony town at home on puter until around 5pm gmt+2. current name: exoworo, c+h read git. c+h anyone freely ill look on pt every once ina while but wont respond to whisps
+ so uh at school= at my home pony town is open and i cant actually seeim currently at school and i cant see what you r doing. im at school and im on pony town at home on puter until around 5pm gmt+2. current name: exoworo, at school read git. c+h anyone freely im at school and my puter running pony towb at home
 any other dni's should be respected pleas..
 
 
